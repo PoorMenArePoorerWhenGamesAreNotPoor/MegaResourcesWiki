@@ -1,1 +1,1 @@
-# PiracyMegalinks.github.io
+#MegaResourcesWiki
